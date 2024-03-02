@@ -1,2 +1,11 @@
-# Atilla6.github.io
-My website on SciFi books
+# Atillas Thoughts
+
+
+### Books
+Dune
+Project Hail Mary
+
+### Concepts
+Virus
+- Opera
+- Thoughts
